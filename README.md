@@ -1,3 +1,9 @@
 # hello-world
 new to programming
-@working on C#.
+adding more and more code
+its getting bigger
+bigger
+bigger,
+and more 
+bigger and 
+bigger
